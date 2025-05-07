@@ -1,11 +1,8 @@
 # TRABALHO!
 
-  |   \\\   | | 
-
-
-Repositório de trabalhos|
-
->>...
+Repositório de trabalhos!
+>>
+>>
 
 
 
